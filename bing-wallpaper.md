@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-11 | [Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MilopotamosStairs_EN-US9131506093_UHD.jpg) 
+
 2024-01-09 | [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg) 
 
 2024-01-08 | [Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg) 
