@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-27 | [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg) 
+
 2024-03-25 | [Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg) 
 
 2024-03-24 | [Large anvil clouds above the Amazon in Brazil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_UHD.jpg) 
