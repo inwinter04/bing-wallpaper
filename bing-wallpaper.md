@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg) 
+
 2024-08-17 | [Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_UHD.jpg) 
 
 2024-08-15 | [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg) 
